@@ -1,7 +1,7 @@
 # Sofija Joksimović
 
 **Location**: Aranđelovac, Serbia | **Phone**: +381 63 607 653 | **Email**: soka.joksimovic@gmail.com  
-[LinkedIn](https://www.linkedin.com/in/sofija-joksimovic) | [GitHub](https://github.com/sofijajoksimovic) | **Date of Birth**: December 19, 2003
+[LinkedIn](https://www.linkedin.com/in/sofija-joksimovic-b362112b1/) | [GitHub](https://github.com/sofijajoksimovic) | **Date of Birth**: December 19, 2003
 
 ## 👩‍💻 Professional Profile
 

@@ -1,7 +1,7 @@
 # Sofija Joksimović
 
  **Email**: soka.joksimovic@gmail.com  
-[LinkedIn](https://www.linkedin.com/in/sofija-joksimovic-b362112b1/) | [GitHub](https://github.com/sofijajoksimovic)
+[LinkedIn](https://www.linkedin.com/in/sofija-joksimovic-b362112b1/)
 
 ## 👩‍💻 Professional Profile
 
